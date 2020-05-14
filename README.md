@@ -1,7 +1,15 @@
 # Post Timeskip
+
+## 3D2Y
+- Watch Movie
+
 ## Return to Sabaody
 - Watch Anime
 	- Episodes 517-522
+	
+## Strong World
+- Watch Movie
+
 ## Fishman Island
 - READ THE MANGA!!!
 	- Chapters 603-620
@@ -71,16 +79,24 @@
 	- Chapters 796-798
 - Watch anime
 	- Episodes 743-747
+## Film Z
+- Watch Movie
 
 ## Zou
 - Watch Anime for the entire arc
 	- Episodes 751-779
+
 ## Whole Cake Island
 - Watch Anime
 	- Episodes 783-877
+
 ## Reverie
 - READ MANGA! Worst arc in the anime for the best arc in all of the manga in terms of world building
 	- Chapters 903-908
+
+## Stampede
+- Watch Movie
+
 ## Wano
 - WATCH ANIME!!!!!!!
 	- Episodes 890-894, 896-906, 908-Present
