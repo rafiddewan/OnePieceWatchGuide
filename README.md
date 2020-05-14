@@ -30,6 +30,9 @@
 - Watch Anime
 	- Episodes 606-628
 
+## Film Z
+- Watch Anime
+
 ## Dressrosa
 - Read manga
 	- Chapters 700-709
@@ -79,7 +82,7 @@
 	- Chapters 796-798
 - Watch anime
 	- Episodes 743-747
-## Film Z
+## Film Gold
 - Watch Movie
 
 ## Zou
